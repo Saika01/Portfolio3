@@ -1,0 +1,1 @@
+https://www.figma.com/file/oYGbVf1iXkB1JcCwyuOs7a/Teddy-Shop---Ecommerce---Home-page-(Community)?type=design&mode=design&t=d03KMZy6NNsxgOfF-0
